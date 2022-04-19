@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @daniinco
 - 👀 I’m interested in programming and math
-- 🌱 I’m currently learning in highet scool of economics
+- 🌱 I’m currently learning in higher scool of economics
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @Dannilklo in telegram
 
